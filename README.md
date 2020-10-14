@@ -2,7 +2,7 @@
 # khiati nour el houda 
 *Success doesn’t just find you You have to go out and get it*.
 
-![my image](Mypic.jpg)
+![image](Mypic.jpg)
 ## hi there i'm nour, a beginner web developer 
 |  Birthday      | Favorite color    | Favorite food    |Pinneapple on pizza |
 | :------------- | :---------------: | ---------------:|-------------------:|
