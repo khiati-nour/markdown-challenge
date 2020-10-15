@@ -19,7 +19,7 @@ feel like giving up and need some motivation
 
 ## a funny story
 
- My mother dragged me to the hairdresser to get my long hair cut. Arriving at the hairdresser, i asked to use the bathroom.i opened the window and i runned away to home and mama and the hairdresser waited. And they waited. Finally, my mother stormed into the bathroom, only to discover the window open and i'm not there.
+ My mother dragged me to the hairdresser to get my long hair cut. Arriving at the hairdresser, i asked to use the bathroom.i opened the window and i runned away to home and my mother and the hairdresser waited. And they waited. Finally, my mother stormed into the bathroom, to discover the window open and i'm not there.
  
 ## TL;DR
 
